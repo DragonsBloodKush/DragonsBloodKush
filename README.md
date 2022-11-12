@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DragonsBloodKush
 - 👀 I’m interested in a brighter future
-- 🌱 I’m currently learning microbilogy
+- 🌱 I’m currently learning microbiology
 - 💞️ I’m looking to collaborate on patient advocacy
 - 📫 How to reach me //email
 
